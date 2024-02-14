@@ -1,1 +1,0 @@
-# dekyowicak.giyhub.io
